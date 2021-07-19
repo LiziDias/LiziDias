@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LiziDias
+- 👀 I’m interested in  mudar de area de trabalho, estou iniciando  meus estudos a áerea da tecnologia e programação.
+--->Atualmente estou fazendo alguns cursos na "Digital Innovation one" e pretendo colaborar com alguns projetos .
